@@ -8,10 +8,21 @@
 
 <details>
  <summary>Σ(°⩊°;) info</summary>
-<p>$\color{#8F1E32FF}{  ⠀ ⠀e⠀      }$</p>
+ 
+<p>$\color{#8F1E32FF}{  ⠀ ⠀c ️+ ️h ️heavily ️encouraged ️! ️ ️( ≧ ⩊ ≦)⠀      }$</p>
+
+<p>$\color{#8F1E32FF}{  ⠀ ⠀this is a wip⠀      }$</p>
+
 </details>
 
 <details>
  <summary>links</summary>
-<a href="https://patchbreakers.atabook.org/">新book</a> <a href="https://witchofblood.straw.page/">strawpage</a> <a href="https://www.tiktok.com/@spokebaba">tiktok</a> <a href="https://x.com/spyglassess">twitter</a>
+ 
+<a href="https://patchbreakers.atabook.org/">新book</a> 
+
+<a href="https://witchofblood.straw.page/">strawpage</a> 
+
+<a href="https://www.tiktok.com/@spokebaba">tiktok</a> 
+
+<a href="https://x.com/spyglassess">twitter</a>
 </details>
