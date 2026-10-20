@@ -4,6 +4,14 @@
 ![](https://files.catbox.moe/yb74jv.png)
 
 <p align="center"> 
-<p>  $\color{#8F1E32FF}{  ⠀ ⠀ᰍ　﹕𓏼    sean ️ ️ ₒᵣ ️ ️ atlas   ˘⠀⠀⠀⠀⠀  𓂂✿ ˚ִ ⠀ ‎ ̼̼♪ ⠀they ╱ them⠀⠀⠀⠀⠀  ♡⏝　⸝⸝ ⠀      }$ <img src="https://files.catbox.moe/4ga364.gif"></p>
-<p>$\color{#8F1E32FF}{  ⠀ ⠀ea⠀      }$</p>
+<p>  $\color{#8F1E32FF}{  ⠀ ⠀ᰍ　﹕𓏼    sean ️ ️ ₒᵣ ️ ️ atlas   ˘⠀⠀⠀⠀⠀  they ╱ them⠀⠀⠀⠀⠀  ♡⏝　⸝⸝ ⠀      }$ <img src="https://files.catbox.moe/4ga364.gif"></p>
+
+<details>
+ <summary>Σ(°⩊°;) info</summary>
+<p>$\color{#8F1E32FF}{  ⠀ ⠀e⠀      }$</p>
+</details>
+
+<details>
+ <summary>links</summary>
 <a href="https://patchbreakers.atabook.org/">新book</a> <a href="https://witchofblood.straw.page/">strawpage</a> <a href="https://www.tiktok.com/@spokebaba">tiktok</a> <a href="https://x.com/spyglassess">twitter</a>
+</details>
