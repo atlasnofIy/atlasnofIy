@@ -1,6 +1,6 @@
  <div id="header" align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Pixelify+Sans&pause=1000&color=8F1E32&width=550&lines=What+do+you...+hate+the+most+about+yourself%3F)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Pixelify+Sans&pause=1000&color=8F1E32&width=445&lines=What+do+you...+hate+the+most+about+yourself%3F)](https://git.io/typing-svg)
 ![](https://files.catbox.moe/yb74jv.png)
 
 <p align="center"> 
