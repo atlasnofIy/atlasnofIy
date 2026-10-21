@@ -11,7 +11,7 @@
 <details>
  <summary>Σ(°⩊°;) info</summary>
 
-<p>$\color{#8F1E32FF}{  ⠀ ⠀i'm super friendly ! always feel free to interact with me or ask to be friends !!⠀      }$</p>
+<p>$\color{#8F1E32FF}{  ⠀ ⠀i'm ️super ️friendly ️! ️always ️feel ️free ️to ️interact ️with ️me ️or ️ask ️to ️be ️friends ️!!⠀      }$</p>
  
 <p>$\color{#8F1E32FF}{  ⠀ ⠀c ️+ ️h ️heavily ️encouraged ️! ️ ️( ≧ ⩊ ≦)⠀      }$</p>
 
