@@ -19,14 +19,14 @@
 
 <p>$\color{#8F1E32FF}{  ⠀ ⠀i'm ️in ️a ️few ️different ️regiments, ️but most ️prominently ️DISF ️!! ️if ️you ️see ️me ️around, ️say ️hi ️!⠀      }$</p>
 
-<p>$\color{#8F1E32FF}{  ⠀ ⠀sometimes hosting FSR, FTS, or build battle (..◜ᴗ◝..)⠀      }$</p>
+<p>$\color{#8F1E32FF}{  ⠀ ⠀sometimes ️hosting ️FSR, ️FTS, ️or ️build ️battle ️(..◜ᴗ◝..)⠀      }$</p>
 
 <p>$\color{#8F1E32FF}{  ⠀ ⠀this is a wip⠀      }$</p>
 
 </details>
 
 <details>
- <summary>links(≥ . ≤)</summary>
+ <summary>links (≥ . ≤)</summary>
  
 <a href="https://patchbreakers.atabook.org/">新book</a> 
 
