@@ -37,4 +37,8 @@
 <a href="https://www.tiktok.com/@spokebaba">tiktok</a> 
 
 <a href="https://x.com/spyglassess">twitter</a>
+
+<a href="https://github.com/patchbreakers">main (@patchbreakers)</a>
+
+<a href="https://github.com/jadenep">main 2 (@jadenep)</a>
 </details>
