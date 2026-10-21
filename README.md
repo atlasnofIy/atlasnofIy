@@ -4,9 +4,11 @@
 ![](https://files.catbox.moe/yb74jv.png)
 
 <p align="center"> 
-<p>  $\color{#8F1E32FF}{  ⠀ ⠀ᰍ　﹕𓏼    sean ️ ️ ₒᵣ ️ ️ atlas   ˘⠀⠀⠀⠀⠀  they ╱ them⠀⠀⠀⠀⠀  ♡⏝　⸝⸝ ⠀      }$ <img src="https://files.catbox.moe/4ga364.gif"></p>
+<p>  $\color{#8F1E32FF}{  ⠀ ⠀ᰍ　﹕𓏼    sean ️ ️ ₒᵣ ️ ️ atlas   ˘⠀⠀⠀⠀⠀  they ╱ them ⠀      }$ <img src="https://files.catbox.moe/4ga364.gif"></p>
 
 <p>  $\color{#8F1E32FF}{  ⠀ ⠀ᜊ𐔌๑ ´  ˔  ` ꒱੭ ️ ️ ️  ️ @patchbreakers  ️ ️ @jadenep  ️ ️ ➜  ️ ️ mains ִֶָ. ..𓂃 ࣪ ִֶָ♡་༘࿐ ⠀      }$ </p>
+
+<p>  $\color{#8F1E32FF}{  ⠀ ⠀sp6(w7)94  ️ ️ INFP  ️ ️ . ݁⋆ ۶ৎ ݁˖ . ݁  ️ ️ /r/lu[A]i  ️ ️ phleg-mel⠀⠀⠀⠀⠀  ♡⏝　⸝⸝ ⠀      }$ </p>
 
 <details>
  <summary>Σ(°⩊°;) info</summary>
