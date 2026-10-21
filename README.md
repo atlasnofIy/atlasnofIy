@@ -26,7 +26,7 @@
 
 <p>$\color{#8F1E32FF}{  ⠀ ⠀sometimes ️hosting ️FSR, ️FTS, ️or ️build ️battle ️(..◜ᴗ◝..)⠀      }$</p>
 
-<p>$\color{#8F1E32FF}{  ⠀ ⠀visit ️my ️[strawpage](https://witchofblood.straw.page/) ️for ️more ️detailed, ️non-ponytown ️related ️info !⠀      }$</p>
+<p>$\color{#8F1E32FF}{  ⠀ ⠀visit ️my ️strawpage ️for ️more ️detailed, ️non-ponytown ️related ️info !⠀      }$</p>
 
 <p>$\color{#8F1E32FF}{  ⠀ ⠀this is a wip⠀      }$</p>
 
