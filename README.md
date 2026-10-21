@@ -6,7 +6,7 @@
 <p align="center"> 
 <p>  $\color{#8F1E32FF}{  ⠀ ⠀ᰍ　﹕𓏼    sean ️ ️ ₒᵣ ️ ️ atlas   ˘⠀⠀⠀⠀⠀  they ╱ them⠀⠀⠀⠀⠀  ♡⏝　⸝⸝ ⠀      }$ <img src="https://files.catbox.moe/4ga364.gif"></p>
 
-<p>  $\color{#8F1E32FF}{     ᜊ𐔌๑ ´  ˔  ` ꒱੭    @patchbreakers and @jadenep are me</p>
+<p>  $\color{#8F1E32FF}{  ⠀ ⠀ᜊ𐔌๑ ´  ˔  ` ꒱੭ ️ ️ ️  ️ @patchbreakers  ️ ️ @jadenep  ️ ️ ➜  ️ ️ mains ִֶָ. ..𓂃 ࣪ ִֶָ♡་༘࿐ ⠀      }$ </p>
 
 <details>
  <summary>Σ(°⩊°;) info</summary>
