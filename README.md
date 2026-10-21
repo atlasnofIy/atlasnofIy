@@ -22,9 +22,11 @@
 
 <p>$\color{#8F1E32FF}{  ⠀ ⠀normally ️found ️on ️docks, ️mcyt ️hill, ️or ️the ️homestuck ️area⠀      }$</p>
 
-<p>$\color{#8F1E32FF}{  ⠀ ⠀i'm ️in ️a ️few ️different ️regiments, ️but most ️prominently ️DISF ️!! ️if ️you ️see ️me ️around, ️say ️hi ️!⠀      }$</p>
+<p>$\color{#8F1E32FF}{  ⠀ ⠀i'm ️in ️a ️few ️different ️regiments ️!! ️if ️you ️see ️me ️around, ️say ️hi ️!⠀      }$</p>
 
 <p>$\color{#8F1E32FF}{  ⠀ ⠀sometimes ️hosting ️FSR, ️FTS, ️or ️build ️battle ️(..◜ᴗ◝..)⠀      }$</p>
+
+<p>$\color{#8F1E32FF}{  ⠀ ⠀visit ️my ️[strawpage](https://witchofblood.straw.page/) ️for ️more ️detailed, ️non-ponytown ️related ️info !⠀      }$</p>
 
 <p>$\color{#8F1E32FF}{  ⠀ ⠀this is a wip⠀      }$</p>
 
