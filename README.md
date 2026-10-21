@@ -1,5 +1,8 @@
  <div id="header" align="center">
 
+![](https://imglink.cc/cdn/XLH1UIYAjk.png)
+![](https://imglink.cc/cdn/4AEsP8m7Hi.png)
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Pixelify+Sans&pause=1000&color=8F1E32&width=445&lines=What+do+you...+hate+the+most+about+yourself%3F)](https://git.io/typing-svg)
 ![](https://files.catbox.moe/yb74jv.png)
 
@@ -42,3 +45,6 @@
 
 <a href="https://github.com/jadenep">main 2 (@jadenep)</a>
 </details>
+
+![](https://imglink.cc/cdn/4AEsP8m7Hi.png)
+![](https://imglink.cc/cdn/ITTFijREpp.png)
